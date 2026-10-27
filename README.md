@@ -1,3 +1,3 @@
 Full Stack Developer & Ai Engineer/Expert!
 
-ashishprajapti.me
+https://ashishprajapti.me
